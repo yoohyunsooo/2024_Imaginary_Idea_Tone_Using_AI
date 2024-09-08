@@ -1,2 +1,11 @@
-2024_Imaginary_Idea_Tone_Using_AI
-=============
+# 2024 Imaginary Idea Tone Using AI
+- 2024_Imaginary_Idea_Tone_Using_AI
+- 김민서 김표승 이혜준 유현수
+
+---------------------------------
+---------------------------------
+# 24.09.05(목) 공모전 1차 회의
+
+- 상상 아
+  
+
