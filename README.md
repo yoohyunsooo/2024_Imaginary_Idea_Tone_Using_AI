@@ -1,3 +1,2 @@
-### 회의록 ###
-
-test 해보는 중입니다
+2024_Imaginary_Idea_Tone_Using_AI
+=============
